@@ -1,0 +1,1 @@
+This is the recipie for cuong's very own Cricket Mucus Recipe.
